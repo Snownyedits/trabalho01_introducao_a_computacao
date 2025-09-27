@@ -3,7 +3,7 @@
 **Alunos:** 
 > Isabel Valadares Pessoa
 
-> Pablo (Coloca o seu nome aqui Pablo)
+> Pablo dos Santos Martins
 
 **Semestre:** 2025/2
 
